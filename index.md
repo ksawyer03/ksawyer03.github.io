@@ -27,7 +27,7 @@
 
 ![Screen 3](https://github.com/ksawyer03/ksawyer03.github.io/blob/master/imgs/screen3.png?raw=true "Ratings")
 
-#### In our first year alone, we were one of Oprah's favorite things. Ever since, we've been working day and night to keep developing delicious pieces of joy!
+#### In our first year alone, we were one of Oprah's favorite things. Ever since, we've been working day and night to keep delivering delicious pieces of joy!
 
 ***
 
