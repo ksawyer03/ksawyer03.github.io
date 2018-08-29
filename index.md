@@ -35,7 +35,7 @@
 # Maggie Louise Confections is much more than carefully made chocolate. We're a community that continues to embrace and empower women.  
 #### We'd love to have you stop by the shop and check us out!
 
-![Screen 4](https://github.com/ksawyer03/ksawyer03.github.io/blob/master/imgs/screen2.png?raw=true "Preferences")
+![Screen 4](https://github.com/ksawyer03/ksawyer03.github.io/blob/master/imgs/Screen%205.png?raw=true "Preferences")
 
 ***
 
