@@ -5,7 +5,7 @@
 ![Screen 1](https://github.com/ksawyer03/ksawyer03.github.io/blob/master/imgs/screen1.png "Survey")
 
 
-#### Our personalized approach to creating gift boxes allows the gourmet experience last far longer than the chocolates ever will. 
+#### Our personalized approach to creating gift boxes allows the gourmet experience to last far longer than the chocolates ever will. 
 
 ***
 
